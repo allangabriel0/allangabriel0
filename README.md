@@ -1,4 +1,5 @@
-<img align="center" style="margin-bottom:100px" width=100% src="https://raw.githubusercontent.com/GelinhoGordo/allangabriel/main/Welcome%20to%20Class.png?token=GHSAT0AAAAAACKUQHDVQDXJZHXDHVA6XG7MZK6OLQQ" />
+
+<a href="https://ibb.co/wJ55LdP"><img src="https://i.postimg.cc/qMS3h3v3/Welcome-to-Class.png)](https://postimg.cc/hf8jNhxD" border="0" style="margin-bottom:100px" width=100%></a>
 
 &nbsp;&nbsp;&nbsp;
 
